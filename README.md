@@ -1,0 +1,1 @@
+# blinxify-privacy-policy
